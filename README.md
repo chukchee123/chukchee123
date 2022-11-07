@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @chukchee123
-- 👀 I’m interested in programming in tinkerkad.
+- 👀 I’m interested in programming in Tinkercad.
 - 🌱 I’m currently learning modeling in Fusion 360.
 - 💞️ I’m looking to collaborate on this platform with somebody.
 - 📫 How to reach me in telegram: @chukche.
